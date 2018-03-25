@@ -7,3 +7,5 @@ https://www.wired.com/story/what-did-cambridge-analytica-really-do-for-trumps-ca
 https://www.wired.com/story/cambridge-analytica-suspends-alexander-nix-amid-scandals/?CNDID=50740756&mbid=nl_032118_daily_list1_p1
 
 https://www.wired.com/story/cambridge-analytica-execs-caught-discussing-extortion-and-fake-news/?CNDID=50740756&mbid=nl_032018_daily_list1_p1
+
+https://www.wired.com/story/the-noisy-fallacies-of-psychographic-targeting/?CNDID=50740756&mbid=nl_032018_daily_list3_p1
